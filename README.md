@@ -1,3 +1,3 @@
 new1game.github.io
 
-Yaoguo Technology Co., Ltd.
+Yoyes Technology Co., Ltd.

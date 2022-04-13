@@ -1,3 +1,3 @@
-new1game.github.io
+yoyesgame.github.io
 
 Yoyes Technology Co., Ltd.
